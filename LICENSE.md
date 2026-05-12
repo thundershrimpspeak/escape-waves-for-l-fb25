@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks no-ban Scripts is the best escape waves for lucky blocks Script, featuring god mode and no clip. Safe and powerful for
 
 
 
